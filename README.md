@@ -7,8 +7,8 @@
 * CSS
 * JAVASCRIPT
 ## 💙
-* SinB 🖤
 * Yeji 🐺
+* SinB 🖤
 * Wendy 💙
 * Nayeon 🐰
 * Rei 🌼
